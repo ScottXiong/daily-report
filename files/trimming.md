@@ -14,6 +14,8 @@ Cambridge, ON, N1R 8G9<br>
 P: 519-740-0595 ext. 261<br>
 E: aschuardt@nemcorinc.com<br> 
 <hr>
+
+### How was it solved?
 <p>I am confused about Exclusive of Trimming so I ask my boss Chris for help. He invite me to his office and search pillow of 
 trimming and then curtain with trimming with [bing](https://cn.bing.com/images/search?q=curtain+of+trimming&FORM=HDRSC2).
 Suddenly, i got it.</p>
