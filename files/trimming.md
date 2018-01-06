@@ -12,7 +12,7 @@ Nemcor Inc.<br>
 Cambridge, ON, N1R 8G9<br>
 <br>
 P: 519-740-0595 ext. 261<br>
-E: aschuardt@nemcorinc.com<br> 
+E: aschuardt@nemcorinc.com<br> |
 |-|
 
 
