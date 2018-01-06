@@ -18,4 +18,4 @@ E: aschuardt@nemcorinc.com<br>
 I am confused about Exclusive of Trimming so I ask my boss Chris for help. He invite me to his office and search pillow of 
 trimming and then curtain with trimming with [bing](https://cn.bing.com/images/search?q=curtain+of+trimming&FORM=HDRSC2) ,
 Suddenly, i got it.
-<p>So if you are misunderstood with something, just use bing.</p>
+<p>So if you are misunderstood with something, just use bing and you won't miss it.</p>
